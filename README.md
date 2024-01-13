@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anything related to textual data, but other types of data are welcome too!
 - 📫 How to reach me - you will likely have reached the website because I shared the link with you!
 - 😄 Pronouns: he/him/Jacob
-- ⚡ Fun fact: I am single
+- ⚡ Fun fact: I am single and looking for a thesis partner!
 
 <!---
 YaqovZ/YaqovZ is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
